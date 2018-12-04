@@ -1,1 +1,0 @@
-# spatadia.github.io
